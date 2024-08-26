@@ -1,2 +1,2 @@
 # Recetario
-	~~ WAAAAGGGGGGG!!~~
+	~~WAAAAGGGGGGG!!!~~
